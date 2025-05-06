@@ -1,5 +1,5 @@
 # 👋 Hi, I'm Manashi Sarkar 
-**Senior Technical Architect | Data & AI Leader | Business Strategist**  
+**Senior Technical Architect | Data & AI  | Business Strategist**  
 
 📍 Based in Kolkata, India | 🔗 [LinkedIn](https://www.linkedin.com/in/manashi-sarkar-b1692049/) | ✉️ [Email](mailto:m_sarkar@outlook.com)  
 
